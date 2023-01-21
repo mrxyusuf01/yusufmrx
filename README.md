@@ -1,0 +1,2 @@
+# yusufmrx
+benim mavi tiklerim
